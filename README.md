@@ -21,7 +21,7 @@ snowbirds/
 - **Beat sheet:** [story/beat-sheet-template.md](story/beat-sheet-template.md)  
 - **Jokes & set pieces by act:** [notes/jokes-by-act.md](notes/jokes-by-act.md)  
 - **Scene list:** [story/scene-list.md](story/scene-list.md)  
-- **Current screenplay draft:** [drafts/snowbirds_v1.0.fountain](drafts/snowbirds_v1.0.fountain)  
+- **Current screenplay draft:** [drafts/snowbirds_v1.0.fountain.md](drafts/snowbirds_v1.0.fountain.md)  
 
 These relative links work directly on GitHub and GitHub Pages.
 
