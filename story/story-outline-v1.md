@@ -4,14 +4,14 @@ Based on original notes - organized into three-act structure
 
 ---
 
-## ACT 1 - LAKE TAHOE (Pages 1-25)
+## ACT 1 - LAKE TAHOE
 
 ### Setup - Rich Kids Paradise
 - **Location:** San Francisco wealth → Lake Tahoe summer house
-- **Characters:** Zack & Kyle, rich party boys from SF
+- **Characters:** Zack & Kyle- twins, rich party boys from SF
 - **Lifestyle:** Wakeboarding with crazy wake boat, drinking, womanizing, zero responsibility
-- **Goals:** Get to party colege
-- **Activitie** Working on "ultimate trick" for future competition
+- **Goals:** Get into California Beach State—the ultimate 90s party school (the “Gronk at Arizona State” of the west coast)
+- **Activity** Working on the "Whirlybird" (a tantrum into a front flip with a 360 and no handle pass)
 - **Problems:** No jobs, don't care about future or values, everything handed to them
 
 ### Inciting Incident
@@ -24,16 +24,16 @@ Based on original notes - organized into three-act structure
 - Parents find out, costs lots of money to fix
 - Parents use the boys' COLLEGE FUND to pay for damages
 - **Ultimatum:** Figure out college on your own OR join the military
-- **Punishment:** Shipped to live with grandparents in Florida for rest of summer
-  - Can't get in any more trouble
-  - Parents cut them off financially
+- **Punishment:** Sent to Florida to work for their grandparents
+  - Grandparents secured them jobs at the retirement community, living in the employee housing (a dump compared to their Tahoe pad)
+  - Parents cut them off financially; no vehicles or perks
 
 ### Act 1 Break (Page 25)
 - Brothers arrive in Florida, everything changes
 
 ---
 
-## ACT 2A - FLORIDA ARRIVAL (Pages 25-55)
+## ACT 2A - FLORIDA ARRIVAL
 
 ### New World - "Feels Like a Graveyard"
 - Arrive at Villages-style retirement community
@@ -60,11 +60,14 @@ Based on original notes - organized into three-act structure
 - **BUT:** Everyone is old, can't see, can't tell the difference
 - Start training in secret
 
-### B-Story - The Girls
-- Meet two girls their age
-  - [NEED NAMES AND DETAILS]
-  - Work at or near retirement community?
-  - Attracted to the "real" brothers, not the disguises
+### B-Story - The Nurses
+- Daisy & Delia are nurses (or nurse assistants) assigned to the retirement community's health wing.
+- They're both kind, grounded, and tired of the usual entitled guys—they genuinely care for the seniors because they are lonely and miss being seen.
+- They see through the brothers' bullshit but are drawn to their vulnerability when the brothers start helping residents instead of just hiding.
+- Daisy is practical, sharp-witted, and quietly in charge of the community's activities board.
+- Delia is more openly compassionate, always sitting in on therapy groups and making sure residents have someone to talk to.
+- The brothers' disguises (and their waking up at the facility) made them want to quit, but Daisy & Delia convince them to stay by showing the old people have depth and deserve respect.
+- Romance sparks when Zack & Kyle start showing real character—Daisy & Delia become their emotional anchors and moral compasses.
 
 ### The Raunchy World
 - Discover old people are VERY raunchy when alone
@@ -85,13 +88,13 @@ Based on original notes - organized into three-act structure
 
 ---
 
-## ACT 2B - COMPLICATIONS (Pages 55-85)
+## ACT 2B - COMPLICATIONS
 
 ### Antagonists Arrive
 - **Evil real estate developer** introduced
   - Wants to take over community
   - Plan: Turn residents into "zombies" with drugs
-  - Can build luxury condos, make millions
+  - Can take out all the facilities that make living worth it. ALl the old people will be on drugs and barely living.
   
 - **Corrupt retirement admin** 
   - In on the scam
@@ -118,7 +121,7 @@ Based on original notes - organized into three-act structure
 - But brothers are lying about disguises
 - Growing guilt about deception
 
-### All Is Lost (Page 75)
+### All Is Lost 
 - **Get fully caught / exposed**
 - **Lose the girls** (feel betrayed)
 - **Lose boat access** (kicked out of facility)
@@ -128,81 +131,44 @@ Based on original notes - organized into three-act structure
 
 ---
 
-## ACT 3 - REDEMPTION (Pages 85-110)
+## ACT 3 - REDEMPTION
 
-### [NEED TO DEVELOP]
+### Everyone Knows
+- It turns out the entire retirement community figured out Zack & Kyle’s disguise weeks ago.
+- Instead of exposing them, the residents kept the secret because they enjoyed the company and wanted to see them grow.
+- Now that the brothers have been caught, the seniors rally around them, offering help rather than condemnation.
+- They reveal that the old people aren’t naive—they knew all along, and now they want the boys to win the competition as proof that they deserve a second chance.
 
-### Key Elements That Must Happen:
+### New Plan
+- The community chips in using their connections:
+  - One retiree has a contact at the Miami wakeboard circuit and arranges an official last-minute entry.
+  - Another resident is a retired sports physiologist who keeps the brothers in shape.
+  - Daisy & Delia advocate on their behalf, vouching for their hard work helping the village.
 
-1. **Brothers' Choice**
-   - Realize what really matters isn't the money
-   - Choose to help save the retirement community instead
+### The Competition
+- Brothers show up in Miami with the community cheering them on remotely (phone calls, fan mail, maybe a few seniors on a budget trip).
+- They face Brand & Chad in the final run.
+- They land the "Whirlybird" they’ve been rehearsing—a tantrum into a front flip with a 360 and no handle pass—win the prize, and raise their profile.
+- Prize money would be enough for college, but they realize their growth is tied to the community.
+- They decide to funnel the winnings into paying off the hidden debt the developers had been using to pressure the residents (so Rick can't weaponize it again).
 
-2. **Redemption Act**
-   - Give up prize money to save community
-   - [HOW? Need specific plan]
-   - Expose corrupt admin
-   - Stop developer's drug scheme
-   - Protect the elderly residents
-
-3. **Final Competition**
-   - Still compete in Miami somehow?
-   - OR: Community has own competition?
-   - Face off against developer's sons
-   - Use "ultimate trick" they've been training
-
-4. **Win Back Girls**
-   - Prove they've changed
-   - Show genuine respect and values
-   - Honest about who they are now
-
-5. **Resolution**
-   - Community saved
-   - College? (How do they pay for it now?)
-     - Maybe elderly residents pool together
-     - Maybe parents see they've changed
-     - Maybe they get jobs/scholarships from showing character
-   - Brothers have learned respect
-   - Found genuine values
-   - Actually earned something themselves
+### Resolution
+- After the win, Daisy & Delia see the brothers make the right choice.
+- The community is saved: drug scheme collapsed, facilities stabilized, residents relieved.
+- They quietly use the prize money to cover the hidden debt the developer had leveraged against the community, keeping their involvement secret from officials so the admin can't weaponize it again.
+- One of the retirees runs a scholarship fund for adults reentering education (started after a widower's late wife donated). They nominate Zack & Kyle, securing their college futures without touching the prize money.
+- Parents hear about the brothers' transformation, admit they were wrong to cut them off, and commit to supporting them on the condition they stay grounded and keep helping the community.
 
 ### Final Image
-- [Mirror of opening - but showing how they've changed]
-- Wakeboarding? But with the old people watching and cheering?
-- Or teaching old people to wakeboard?
+- Zack & Kyle sit in a college lecture hall or study room, textbooks open, laptops with research tabs, clearly more academically focused.
+- Daisy & Delia help lead a discussion or lab, guiding the brothers while also mentoring other community members returning to school.
+- The seniors, now acting as tutors or mentors, write notes on “life lessons” cards and hang them on the classroom wall—proof they’ve become a part of both worlds.
 
 ---
 
 ## OPEN QUESTIONS TO RESOLVE
 
-1. **What exactly do they ruin in Act 1?**
-   - Needs to be expensive enough to use college fund
-   - Needs to involve disrespecting elderly
-   - Needs to be comedy gold
-
-2. **Who are the girls and what do they do?**
-   - Lifeguards? Community workers? Volunteers?
-   - What's their connection to community?
-
-3. **How does Act 3 redemption work specifically?**
-   - How do they save the community?
-   - How do they expose the scheme?
-   - What happens with competition?
-
-4. **What's the "ultimate trick"?**
-   - Should be visually spectacular
-   - Requires all their training
-   - Payoff moment
-
-5. **How do they ultimately pay for college?**
-   - Need satisfying resolution
-   - Can't be too easy
-   - Should relate to character growth
-
-6. **California Beach State**
-   - This was mentioned - where does it fit?
-   - Their dream college?
-   - "Think Gronk at Arizona State" - party school
+No open questions remain—leave this section as a placeholder should you uncover new ones while drafting.
 
 ---
 
