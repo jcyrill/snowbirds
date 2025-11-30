@@ -6,6 +6,7 @@
 **Age:**  
 **Occupation:**  
 **Living Situation:**  
+**Ultimate Trick:** [If applicable, like Whirlybird]
 
 ---
 
@@ -61,7 +62,7 @@
 ## Goals & Motivations
 
 **External Goal (What they WANT):**  
-[What are they actively pursuing?]
+[What are they actively pursuing? e.g., Get into California Beach State]
 
 **Internal Need (What they NEED):**  
 [What would actually fulfill them?]
@@ -85,6 +86,12 @@
 
 **Romantic History:**  
 [Past relationships, current situation]
+
+**With Daisy/Delia:**  
+[If applicable, love interest dynamic]
+
+**With Karen:**  
+[If applicable, comedy blackmail dynamic]
 
 ---
 
@@ -118,6 +125,7 @@
 1. 
 2. 
 3. 
+4. [Add more for raunchy one-liners]
 
 ---
 

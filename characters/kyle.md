@@ -3,9 +3,9 @@
 ## Basic Information
 
 **Name:** Kyle [Last Name TBD - same as Zack]  
-**Age:** 18-19 (younger brother)  
+**Age:** 19 (twin with Zack)  
 **Occupation:** Trust fund kid / Zack's sidekick  
-**Living Situation:** Same as Zack - mansion, Tahoe house → Florida dump
+**Living Situation:** Same as Zack - mansion, Tahoe house → Dumpy employee housing in Florida retirement community (punishment job)
 
 ---
 
@@ -78,7 +78,7 @@ Living Zack's life one step behind. Happy to be along for the ride. College wasn
 ## Goals & Motivations
 
 **External Goal (What they WANT):**  
-Same as Zack initially - win money, get to college, make parents happy, have fun. But he's less driven about it.
+Same as Zack initially - get into California Beach State by winning money, get to college, make parents happy, have fun. But he's less driven about it. Master the Whirlybird trick.
 
 **Internal Need (What they NEED):**  
 Find his own identity separate from Zack. Learn to make his own decisions. Discover what HE actually wants vs. what others want for him. Grow up in his own way.
@@ -100,7 +100,7 @@ Find his own identity separate from Zack. Learn to make his own decisions. Disco
 
 ## Relationships
 
-**With Zack:**  
+**With Zack (twin brother):**  
 Worships his brother. Follows his lead always. Their separation/growth is key to his arc. Will have to learn to stand up to him, not reject him.
 
 **With Parents:**  
@@ -109,11 +109,14 @@ Wants to please them but doesn't understand how. Feels like the "other" brother 
 **With Grandparents:**  
 Actually curious about them (more than Zack is). Might have clearer memories of visits. More open to connection.
 
-**With The Girls:**  
+**With Delia (love interest):**  
 Falls hard and fast. More genuine in his feelings than Zack initially. Wears heart on sleeve. His girl might see his potential before he does.
 
 **With Elderly Community:**  
 More naturally comfortable with them. Less judgment, more curiosity. They probably adopt him as grandson-figure. Enjoys hearing their stories.
+
+**With Karen (noisy neighbor):**  
+Running gag - forced encounters after getting caught. Blackmail comedy.
 
 ---
 
@@ -148,6 +151,40 @@ Same bro-speak but less confident. "Uh..." and "like" more often. Trails off. As
 - "Wait, what? I don't get it."
 - "That's actually really sad, man."
 - [After growth] "No. No, dude, that's not right. We can't do that."
+- Kyle, after a wipeout: "That wave hit harder than last night's threesome—left me soaked and breathless!"
+- Kyle, mocking an elderly passerby: "Look at grandpa shuffling—bet his moves in bed are slower than dial-up porn."
+- After crash, Kyle: "Shit, the urn's in the lake—now pussy's really wet!"
+- Kyle, to angry elderly: "Relax, it's just cat ashes—pussy comes and goes!"
+- Kyle, downplaying: "The old folks are fine—wet but alive, unlike my sex life after this."
+- Ultimatum: "Military or Florida!" Kyle: "Florida? That's where old people go to die—or screw, apparently."
+- On plane: Kyle: "Coach class? This seat's tighter than a virgin on prom night."
+- Kyle, on arrival: "Feels like a graveyard—bet the only thing rising here is the dead!"
+- Kyle, first night: "This dump's tighter than a nun's—how do we even jack off in here?"
+- Kyle: "The only wakes around here are on the land!" (play on wakeboarding wakes vs. funeral wakes)
+- Kyle: "65+ only? Guess we gotta fake it till we make it—like my last date."
+- Kyle, on the plan: "Dress as old people? Hope my disguise doesn't slip like my condom last week."
+- Kyle, with wig: "I look like grandma after a bad perm—smells like mothballs and regret."
+- Kyle, in clothes: "These pants are looser than a hooker's morals."
+- Kyle, mirror: "We look like death—bet we'd still get laid in this place!"
+- Kyle, wig falling: "Shit, my hairpiece! Looks like I'm going bald like gramps' pubes."
+- Kyle: "You handle old people? Bet you could handle my young equipment."
+- Kyle: "Flamingos mean what? Granny's down to clown?"
+- Kyle: "Old lady just grabbed my ass—feels like a prune with attitude."
+- Kyle: "Helping feels weird—like blue balls but satisfying."
+- Kyle: "This is worse than waking up next to a mistake—it's a nightmare!"
+- Kyle, after: "She rode me like a golf cart—bumpy and endless."
+- Kyle: "They're hitting on our girls? Time to cockblock like pros."
+- Kyle: "Old folks turning into zombies? Bet they still hump like rabbits."
+- Kyle: "I swear, we're not liars—just really into roleplay."
+- Kyle, wig slipping: "Hold it together—like my virginity in high school!"
+- Kyle: "That was close—closer than twins in a womb."
+- Kyle: "Girls hate us now—worse than erectile dysfunction."
+- Kyle: "Guess we're not the only ones full of surprises—like granny's toy drawer."
+- Kyle: "Physio for free? Better than rubbing one out alone."
+- Kyle, nervous: "My stomach's flipping harder than a one-night stand."
+- Kyle: "Feels weird giving it up—like blue balls but purposeful."
+- Kyle: "Scholarship? Now we can study without starving our dicks."
+- Kyle: "These life lessons hit harder than Karen's hips."
 
 **90s References They'd Make:**  
 More pop culture than Zack - cartoons, video games, comedies. Pauly Shore, Jim Carrey movies, video game references (Nintendo 64, PlayStation), Simpsons quotes

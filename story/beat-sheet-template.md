@@ -6,21 +6,21 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ## ACT 1
 
-### 1. Opening Image (Page 1)
+### 1. Opening Image 
 **Visual:**  
 **Mood:**  
 **What it shows about the world/character:**  
 
 ---
 
-### 2. Theme Stated (Page 5)
+### 2. Theme Stated 
 **Who says it:**  
 **The line/moment:**  
 **What the story is really about:**  
 
 ---
 
-### 3. Setup (Pages 1-10)
+### 3. Setup 
 **Protagonist's world:**  
 **Supporting characters introduced:**  
 **Protagonist's flaw/problem:**  
@@ -33,13 +33,13 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ---
 
-### 4. Catalyst/Inciting Incident (Page 12)
+### 4. Catalyst/Inciting Incident 
 **The event that changes everything:**  
 **How protagonist reacts initially:**  
 
 ---
 
-### 5. Debate (Pages 12-25)
+### 5. Debate 
 **Protagonist's resistance:**  
 **Why they don't want to change:**  
 **Internal conflict:**  
@@ -50,7 +50,7 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ---
 
-### 6. Break Into Two (Page 25)
+### 6. Break Into Two 
 **The decision:**  
 **Point of no return:**  
 **Entering the "upside-down world":**  
@@ -59,14 +59,14 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ## ACT 2A
 
-### 7. B Story (Page 30)
+### 7. B Story 
 **The relationship/subplot:**  
 **Character introduced:**  
 **How this relates to theme:**  
 
 ---
 
-### 8. Fun and Games (Pages 30-55)
+### 8. Fun and Games 
 **The "promise of the premise":**  
 **What the audience came to see:**  
 
@@ -92,7 +92,7 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ## ACT 2B
 
-### 10. Bad Guys Close In (Pages 55-75)
+### 10. Bad Guys Close In
 **External pressure:**  
 **Internal doubt:**  
 **Relationships fracture:**  
@@ -104,14 +104,14 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ---
 
-### 11. All Is Lost (Page 75)
+### 11. All Is Lost 
 **The low point:**  
 **Loss/failure:**  
 **Whiff of death (literal or metaphorical):**  
 
 ---
 
-### 12. Dark Night of the Soul (Pages 75-85)
+### 12. Dark Night of the Soul 
 **Protagonist's despair:**  
 **Questioning everything:**  
 **Reflection on journey:**  
@@ -120,14 +120,14 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ## ACT 3
 
-### 13. Break Into Three (Page 85)
+### 13. Break Into Three 
 **The revelation:**  
 **A + B = C (solution comes from combining lessons):**  
 **New approach:**  
 
 ---
 
-### 14. Finale (Pages 85-110)
+### 14. Finale 
 **The plan:**  
 **Confrontation:**  
 **Resolution:**  
@@ -141,7 +141,7 @@ Based on Blake Snyder's "Save the Cat" structure (15 beats)
 
 ---
 
-### 15. Final Image (Page 110)
+### 15. Final Image 
 **Visual:**  
 **Mood:**  
 **How it mirrors/inverts Opening Image:**  
