@@ -15,6 +15,24 @@ snowbirds/
 └── scripts/               # Utility scripts (formatting, etc.)
 ```
 
+## Core Story Docs
+
+- **Story outline:** `story/story-outline-v1.md`  
+- **Beat sheet:** `story/beat-sheet-template.md`  
+- **Jokes & set pieces by act:** `notes/jokes-by-act.md`  
+- **Scene list:** `story/scene-list.md`  
+- **Current screenplay draft:** `drafts/snowbirds_v1.0.fountain`  
+
+These links are relative so they can be browsed directly on GitHub or GitHub Pages.
+
+## Reference & Images
+
+- **Reference hub:** `reference/README.md`  
+- **Character images:** `reference/images/characters/`  
+- **Background/location images:** `reference/images/backgrounds/`  
+- **Fashion reference:** `reference/images/fashion/`  
+- **Mood boards:** `reference/images/mood-board/`  
+
 ## Workflow
 
 1. **Planning Phase** → `documents/` and `research/`
