@@ -72,6 +72,12 @@
 - [ ] The "dump" apartment they're supposed to live in
 - [ ] Grandparents' nice condo (they sneak in)
 - [ ] First night alone - no money, no plan
+- Zack, seeing golf carts: "This place is slower than grandpa's boner—where's the action?"
+- Kyle, on arrival: "Feels like a graveyard—bet the only thing rising here is the dead!"
+- Zack, meeting grandparents: "Gramps, you still got it? Or is that Viagra in your pocket?"
+- Kyle, first night: "This dump's tighter than a nun's—how do we even jack off in here?"
+- Zack, sneaking into condo: "Finally, a bed that doesn't smell like old balls."
+- Kyle: "The only wakes around here are on the land!" (play on wakeboarding wakes vs. funeral wakes)
 
 ### Discovery of the Facility
 - [ ] Exploring community (getting lost)
@@ -82,6 +88,10 @@
 - [ ] Learning about Miami competition
 - [ ] Prize money amount ($75K)
 - [ ] The plan: "We'll just... dress up as old people"
+- Zack, spotting facility: "Holy shit, a wake lake? These old farts are hiding the good stuff!"
+- Kyle: "65+ only? Guess we gotta fake it till we make it—like my last date."
+- Zack: "Miami contest? $75K? That's enough for hookers and blow for life!"
+- Kyle, on the plan: "Dress as old people? Hope my disguise doesn't slip like my condom last week."
 
 ### The Disguise - First Attempts
 - [ ] Trying to figure out how to look old
@@ -93,6 +103,11 @@
 - [ ] Looking in mirror - horrified at how bad it looks
 - [ ] "This will never work"
 - [ ] But it does work (everyone's old with bad eyesight)
+- Kyle, with wig: "I look like grandma after a bad perm—smells like mothballs and regret."
+- Zack, applying makeup: "This foundation's thicker than my ex's lies—hope it covers my boner."
+- Kyle, in clothes: "These pants are looser than a hooker's morals."
+- Zack, practicing walk: "Hunch like this? Feels like I'm smuggling a hard-on."
+- Kyle, mirror: "We look like death—bet we'd still get laid in this place!"
 
 ### Training Montage as Old People
 - [ ] First time using facility in disguise
@@ -102,6 +117,10 @@
 - [ ] Having to maintain character while doing tricks
 - [ ] Other "old people" not noticing
 - [ ] Brothers getting better at the Whirlybird
+- Zack, wiping out: "That hurt worse than blue balls after a dry spell!"
+- Kyle, wig falling: "Shit, my hairpiece! Looks like I'm going bald like gramps' pubes."
+- Zack, maintaining character: "Nice trick, sonny—now pass the Viagra!"
+- Kyle, makeup running: "Sweating like a whore in church—disguise melting faster than my resolve."
 
 ### Meeting Daisy & Delia
 - [ ] First encounter (not in disguise)
@@ -111,6 +130,12 @@
 - [ ] Girls' witty comebacks
 - [ ] Brothers actually impressed (new feeling)
 - [ ] Awkward attempts to impress them
+- Zack: "Hey nurse, I think I'm sick—got a fever for your fine ass."
+- Daisy: "Save it, we've seen more BS than bedpans."
+- Kyle: "You handle old people? Bet you could handle my young equipment."
+- Delia: "Young? Looks like you've got performance issues already."
+- Zack: "We're wakeboard pros—wanna ride my wake?"
+- Daisy: "I'd rather ride a golf cart—less disappointing."
 
 ### Raunchy Old People Discovery
 - [ ] Brothers expecting boring retirees
@@ -122,6 +147,11 @@
 - [ ] Brothers' shock and confusion
 - [ ] "These people are more wild than we are"
 - [ ] Subverting all their expectations
+- Zack: "Garage door open? That's code for 'come swing with my saggy balls'?"
+- Kyle: "Flamingos mean what? Granny's down to clown?"
+- Zack: "These geezers party harder than us—bet they've got more STDs than exes!"
+- Kyle: "Old lady just grabbed my ass—feels like a prune with attitude."
+- Zack: "They're swapping more than stories—grandpa's got game!"
 
 ### Helping Lonely Seniors
 - [ ] Brothers forced to interact (in disguise)
@@ -130,6 +160,10 @@
 - [ ] Helping someone (first time they help anyone)
 - [ ] Feeling good about it (confusing feeling)
 - [ ] Building real relationships
+- Zack, in disguise: "Tell me your story, pops—did you bang like a rockstar back in the day?"
+- Senior: "Son, I had more tail than a cat convention."
+- Kyle: "Helping feels weird—like blue balls but satisfying."
+- Zack: "This old dude's lonelier than my dick on a dry night."
 
 ### Midpoint - Getting Caught
 - [ ] Kyle gets caught by Karen (noisy neighbor)
@@ -140,6 +174,10 @@
 - [ ] First "sleeping with Karen" scene (awkward comedy)
 - [ ] Kyle traumatized but committed
 - [ ] Running gag begins
+- Karen: "Well hello, young meat—drop the disguise and drop your pants!"
+- Kyle: "This is worse than waking up next to a mistake—it's a nightmare!"
+- Karen: "I've got needs, boy—make grandma purr."
+- Kyle, after: "She rode me like a golf cart—bumpy and endless."
 
 ---
 
@@ -153,6 +191,10 @@
 - [ ] Brothers' jealousy
 - [ ] Competition at the facility
 - [ ] Brand & Chad are actually good (threat)
+- Zack: "Those douchebags are us—but with smaller dicks."
+- Brand: "Hey nurses, wanna check my vitals? It's rising."
+- Chad: "We're pros—bet our wake's bigger than these losers'."
+- Kyle: "They're hitting on our girls? Time to cockblock like pros."
 
 ### The Scheme Revealed
 - [ ] Brothers overhear developer's plan
@@ -161,6 +203,9 @@
 - [ ] Realizing what's happening
 - [ ] Brothers' moral dilemma (they care now)
 - [ ] Trying to figure out how to help
+- Zack: "Drugs to zombify them? That's colder than blue balls in winter."
+- Kyle: "Old folks turning into zombies? Bet they still hump like rabbits."
+- Zack: "This guy's eviler than my morning wood—unstoppable."
 
 ### Relationship Complications
 - [ ] Daisy & Delia getting more serious
@@ -169,6 +214,9 @@
 - [ ] Girls suspicious of inconsistencies
 - [ ] Brothers trying to maintain lies
 - [ ] Awkward moments where they almost slip up
+- Zack: "Babe, trust me—I'm not hiding anything... except my massive crush."
+- Daisy: "Your story's fishier than granny's panties after bingo."
+- Kyle: "I swear, we're not liars—just really into roleplay."
 
 ### Near-Misses & Close Calls
 - [ ] Almost getting caught multiple times
@@ -176,6 +224,9 @@
 - [ ] Having to maintain character under pressure
 - [ ] Physical comedy of hiding
 - [ ] Brothers getting better at deception (ironic)
+- Kyle, wig slipping: "Hold it together—like my virginity in high school!"
+- Zack: "Quick, act old—cough like you've got balls in your throat."
+- Kyle: "That was close—closer than twins in a womb."
 
 ### All Is Lost - Full Exposure
 - [ ] The moment they get fully caught
@@ -187,6 +238,9 @@
 - [ ] Back in the dump apartment
 - [ ] Everything falls apart
 - [ ] Brothers at lowest point
+- Zack: "Exposed like a flasher in church—everyone saw my true self."
+- Kyle: "Girls hate us now—worse than erectile dysfunction."
+- Zack: "We're done—limper than grandpa without pills."
 
 ---
 
@@ -199,6 +253,9 @@
 - [ ] Why they kept the secret
 - [ ] Seniors rallying around them
 - [ ] "We want to help you win"
+- Senior: "We knew you were faking it—your disguises were worse than my erectile dysfunction!"
+- Zack: "You knew? And you let us prance around like saggy old nuts?"
+- Kyle: "Guess we're not the only ones full of surprises—like granny's toy drawer."
 
 ### The Plan
 - [ ] Retiree with Miami connection
@@ -207,6 +264,9 @@
 - [ ] Daisy & Delia advocating
 - [ ] Community coming together
 - [ ] Brothers' gratitude (new feeling)
+- Retiree: "My contact owes me—saved his ass in 'Nam, now he'll save yours."
+- Zack: "You guys are legends—hornier than us and twice as sneaky!"
+- Kyle: "Physio for free? Better than rubbing one out alone."
 
 ### Miami Competition
 - [ ] Arriving at competition
@@ -220,6 +280,10 @@
 - [ ] Crowd going wild
 - [ ] Winning the prize
 - [ ] Victory celebration
+- Zack to Brand: "Your wake's tiny—bet your dick is too!"
+- Chad: "We'll crush you like we crush puss—wait, no, that's not right."
+- Kyle, nervous: "My stomach's flipping harder than a one-night stand."
+- After win: "We nailed it—stuck the landing like a pro in bed!"
 
 ### The Sacrifice
 - [ ] Brothers with prize money
@@ -228,6 +292,8 @@
 - [ ] Developer's reaction (confused)
 - [ ] Community saved
 - [ ] Brothers' choice (first selfless act)
+- Zack: "Screw college cash—let's pay off the debt like popping a cherry for good."
+- Kyle: "Feels weird giving it up—like blue balls but purposeful."
 
 ### Resolution
 - [ ] Daisy & Delia see the sacrifice
@@ -238,6 +304,9 @@
 - [ ] Parents admitting they were wrong
 - [ ] Community celebration
 - [ ] Brothers' new perspective
+- Daisy: "You chose us over money? That's hotter than your Whirlybird."
+- Kyle: "Scholarship? Now we can study without starving our dicks."
+- Zack to parents: "See? We're not total fuckups—just partial ones."
 
 ### Final Image
 - [ ] Classroom scene
@@ -246,6 +315,8 @@
 - [ ] Seniors as mentors
 - [ ] Life lessons on wall
 - [ ] Showing how they've changed
+- Zack: "Who knew books could be as fun as boobs?"
+- Kyle: "These life lessons hit harder than Karen's hips."
 
 ---
 
