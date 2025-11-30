@@ -2,7 +2,7 @@
 
 Based on story-outline-v1.md and jokes-by-act.md. Approximately 50 scenes for ~110-page screenplay. Each scene includes purpose, key beats, comedy integration, and notes.
 
-## ACT 1 (Scenes 1-12, ~25 pages)
+## ACT 1 
 
 ### Scene 1
 **EXT. LAKE TAHOE - DAY**  
