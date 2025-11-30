@@ -3,6 +3,11 @@
 ## ACT 1: THE FALL (Lake Tahoe)
 
 ### Opening Montage - Rich Kids Paradise
+- Zack, spotting girls on the boat: "Dude, these Tahoe hotties are like our wake—wet, wild, and ready to ride!"
+- Kyle, after a wipeout: "That wave hit harder than last night's threesome—left me soaked and breathless!"
+- Zack, ignoring parents' call: "Mom's ringing? Tell her we're busy 'studying' anatomy with the locals."
+- Kyle, mocking an elderly passerby: "Look at grandpa shuffling—bet his moves in bed are slower than dial-up porn."
+- Zack, throwing money: "Cash flow like my ex's tears—endless and satisfying!"
 - [ ] Wakeboarding montage showing their skills and lifestyle
 - [ ] Partying scene establishing their disrespect and entitlement
 - [ ] Visual gags: expensive wake boat, girls everywhere, money being thrown around
@@ -11,6 +16,12 @@
 - [ ] Mocking elderly people they see around Tahoe
 
 ### The Cat Memorial Luncheon Disaster
+- Zack, splashing guests: "Whoops, gave granny a golden shower—bet that's the most action she's had since the 70s!"
+- Kyle, mocking voices: "Hey old timer, is that a cane or are you just happy to see me?"
+- Zack, attempting trick: "Watch this Whirlybird—gonna spin harder than grandma at a strip club!"
+- After crash, Kyle: "Shit, the urn's in the lake—now pussy's really wet!"
+- Zack, seeing chaos: "We just turned their lunch into a wet T-shirt contest for seniors—boobs sagging like their stocks!"
+- Kyle, to angry elderly: "Relax, it's just cat ashes—pussy comes and goes!"
 - [ ] Brothers drunk wakeboarding too close to dock
 - [ ] First wake splashes elderly guests (comedy of errors)
 - [ ] Brothers mock them, do old person voices
@@ -28,6 +39,12 @@
 - [ ] Police arrive, elderly people pointing fingers
 
 ### Consequences & Ultimatum
+- Parents on phone: "You destroyed everything!" Zack: "Come on, it was an accident—like that time I pulled out too late."
+- Kyle, downplaying: "The old folks are fine—wet but alive, unlike my sex life after this."
+- Parents: "College fund gone!" Zack: "No way—how am I gonna afford coeds without cash?"
+- Ultimatum: "Military or Florida!" Kyle: "Florida? That's where old people go to die—or screw, apparently."
+- Packing: Zack: "No credit cards? How do we buy condoms now?"
+- On plane: Kyle: "Coach class? This seat's tighter than a virgin on prom night."
 - [ ] Parents' reaction (phone call or in person)
 - [ ] Brothers trying to downplay it
 - [ ] Parents showing them the video
