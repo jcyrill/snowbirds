@@ -17,21 +17,21 @@ snowbirds/
 
 ## Core Story Docs
 
-- **Story outline:** `story/story-outline-v1.md`  
-- **Beat sheet:** `story/beat-sheet-template.md`  
-- **Jokes & set pieces by act:** `notes/jokes-by-act.md`  
-- **Scene list:** `story/scene-list.md`  
-- **Current screenplay draft:** `drafts/snowbirds_v1.0.fountain`  
+- **Story outline:** [story/story-outline-v1.md](story/story-outline-v1.md)  
+- **Beat sheet:** [story/beat-sheet-template.md](story/beat-sheet-template.md)  
+- **Jokes & set pieces by act:** [notes/jokes-by-act.md](notes/jokes-by-act.md)  
+- **Scene list:** [story/scene-list.md](story/scene-list.md)  
+- **Current screenplay draft:** [drafts/snowbirds_v1.0.fountain](drafts/snowbirds_v1.0.fountain)  
 
-These links are relative so they can be browsed directly on GitHub or GitHub Pages.
+These relative links work directly on GitHub and GitHub Pages.
 
 ## Reference & Images
 
-- **Reference hub:** `reference/README.md`  
-- **Character images:** `reference/images/characters/`  
-- **Background/location images:** `reference/images/backgrounds/`  
-- **Fashion reference:** `reference/images/fashion/`  
-- **Mood boards:** `reference/images/mood-board/`  
+- **Reference hub:** [reference/README.md](reference/README.md)  
+- **Character images:** [reference/images/characters/](reference/images/characters/)  
+- **Background/location images:** [reference/images/backgrounds/](reference/images/backgrounds/)  
+- **Fashion reference:** [reference/images/fashion/](reference/images/fashion/)  
+- **Mood boards:** [reference/images/mood-board/](reference/images/mood-board/)  
 
 ## Workflow
 
